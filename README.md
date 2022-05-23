@@ -1,1 +1,0 @@
-# PericlesThePre.github.io odev
